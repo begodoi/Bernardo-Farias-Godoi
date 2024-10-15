@@ -8,3 +8,4 @@ Meu nome é Bernardo
 - VOCÊ ENTRA EM CONTATO COMIGO EM : bernardo.godoi@escola.pr.gov.br
 
 ![](https://tenor.com/pt-BR/view/jiminlar-macaco-memes-gif-26668957)
+
